@@ -4,7 +4,7 @@
 
 ## Состав группы
 
-Чижова Кристина (github: Kristina-Chizhova), Любимкина Алена (github: -)
+Чижова Кристина (github: Kristina-Chizhova), Любимкина Алена (github: Alyonett)
 
 ## Идея компании
 
